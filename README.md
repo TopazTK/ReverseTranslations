@@ -1,2 +1,0 @@
-# ReverseTranslations
-¯\_(ツ)_/¯
